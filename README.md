@@ -16,6 +16,6 @@
 
 # Perhatian!
 Untuk pemesanan password bisa hubungi kontak di bawah:
-Whatsapp: +6285624923438
-Telegram: rissv
-Instagram: risnfd
+* Whatsapp: +6285624923438
+* Telegram: rissv
+* Instagram: risnfd
